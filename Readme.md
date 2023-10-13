@@ -1,1 +1,1 @@
-Team Gryphon
+Team Slytherin
